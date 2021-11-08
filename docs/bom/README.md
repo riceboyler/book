@@ -222,12 +222,12 @@ There was a book published in 1823 Vermont entitled _[View of the Hebrews](https
         Vermont<br/>
         Poultney, Rutland County<br/><br/>
         <strong class="spaced-title">NOTE:</strong> Oliver Cowdery, one of the Book of Mormon witnesses, lived in
-        Poutlney when <strong>View of the Hebrews</strong> was published.
+        Poultney when <strong>View of the Hebrews</strong> was published.
       </td>
       <td valign="top">
         Vermont<br/>
         Sharon, Windsor County<br/><br/>
-        <strong class="spaced-title">NOTE:</strong> Windor County is adjacent to Rutland County.
+        <strong class="spaced-title">NOTE:</strong> Windsor County is adjacent to Rutland County.
       </td>
     </tr>
     <ComparisonTitle label="The destruction of Jerusalem" />
@@ -368,33 +368,33 @@ The [first chapter](https://www.cesletter.org/bom/45) alone is stunning as it re
 
 In addition to the above KJV language style present throughout the book, what are the following Book of Mormon verbatim phrases, themes, and storylines doing in a children’s school textbook that was used in Joseph Smith’s own time and backyard – all of this a mere decade before the publication of the Book of Mormon?
 
-* Devices of “curious workmanship” in relation to boats and weapons.
-* A “stripling” soldier “with his “weapon of war in his hand.”
-* “A certain chief captain...was given in trust a band of more than two thousand chosen men, to go forth to battle” and who “all gave their services freely for the good of their country.”
-* Fortifications: “the people began to fortify themselves and entrench the high Places round about the city.”
-* Objects made “partly of brass and partly of iron, and were cunningly contrived with curious works, like unto a clock; and as it were a large ball.”
-* “Their polished steels of fine workmanship.”
-* “Nevertheless, it was so that the freeman came to the defence of the city, built strong holds and forts and raised up fortifications in abundance.”
-* Three Indian Prophets.
-* “Rod of iron.”
-* War between the wicked and righteous.
-* Maintaining the standard of liberty with righteousness.
-* Righteous Indians vs. savage Indians.
-* False Indian prophets.
-* Conversion of Indians.
-* Bands of robbers/pirates marauding the righteous protagonists.
-* Engraving records.
-* “And it came to pass, that a great multitude flocked to the banners of the great Sanhedrim” compared to Alma 62:5: “And it came to pass that thousands did flock unto his standard, and did take up their swords in defense of their freedom...”
-* Worthiness of Christopher Columbus.
-* Ships crossing the ocean.
-* A battle at a fort where righteous white protagonists are attacked by
-an army made up of dark-skinned natives driven by a white military leader. White protagonists are prepared for battle and slaughter their opponents to such an extent that they fill the trenches surrounding the fort with dead bodies. The surviving elements flee into the wilderness/forest.
-* Cataclysmic earthquake followed by great darkness.
-* Elephants/mammoths in America.
-* Literary Hebraisms/Chiasmus.
-* Boats and barges built from trees after the fashion of the ark.
-* A bunch of “it came to pass.”
-* Many, many more [parallels](https://cesletter.org/bom/46).
+- Devices of “curious workmanship” in relation to boats and weapons.
+- A “stripling” soldier “with his “weapon of war in his hand.”
+- “A certain chief captain...was given in trust a band of more than two thousand chosen men, to go forth to battle” and who “all gave their services freely for the good of their country.”
+- Fortifications: “the people began to fortify themselves and entrench the high Places round about the city.”
+- Objects made “partly of brass and partly of iron, and were cunningly contrived with curious works, like unto a clock; and as it were a large ball.”
+- “Their polished steels of fine workmanship.”
+- “Nevertheless, it was so that the freeman came to the defence of the city, built strong holds and forts and raised up fortifications in abundance.”
+- Three Indian Prophets.
+- “Rod of iron.”
+- War between the wicked and righteous.
+- Maintaining the standard of liberty with righteousness.
+- Righteous Indians vs. savage Indians.
+- False Indian prophets.
+- Conversion of Indians.
+- Bands of robbers/pirates marauding the righteous protagonists.
+- Engraving records.
+- “And it came to pass, that a great multitude flocked to the banners of the great Sanhedrim” compared to Alma 62:5: “And it came to pass that thousands did flock unto his standard, and did take up their swords in defense of their freedom...”
+- Worthiness of Christopher Columbus.
+- Ships crossing the ocean.
+- A battle at a fort where righteous white protagonists are attacked by
+  an army made up of dark-skinned natives driven by a white military leader. White protagonists are prepared for battle and slaughter their opponents to such an extent that they fill the trenches surrounding the fort with dead bodies. The surviving elements flee into the wilderness/forest.
+- Cataclysmic earthquake followed by great darkness.
+- Elephants/mammoths in America.
+- Literary Hebraisms/Chiasmus.
+- Boats and barges built from trees after the fashion of the ark.
+- A bunch of “it came to pass.”
+- Many, many more [parallels](https://cesletter.org/bom/46).
 
 The parallels and similarities to the Book of Mormon are astounding. This [web page](https://cesletter.org/bom/46) outlines very clearly and simply just how phenomenally unlikely it is that so many common rare phrases and themes could be found between these books without the _Late War_ having had some influence on the Book of Mormon.
 
